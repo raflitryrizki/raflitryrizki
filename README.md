@@ -1,4 +1,4 @@
-# Hi, I'm Rafli Try Rizki! 👋
+# Hi, I'm Rafli Try Rizki! 
 
 ### Informatics Engineering Graduate | Aspiring IT Professional
 
